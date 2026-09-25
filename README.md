@@ -215,4 +215,4 @@ Serviio is available as a **complete free version** with all features and update
 Unlock a world of media possibilities today! Enjoy your **Serviio free download** and elevate your multimedia experience on Windows.
 
 ---
-**Last updated:** 2026-09-24 22:45:24 UTC
+**Last updated:** 2026-09-25 00:57:14 UTC
